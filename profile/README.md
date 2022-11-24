@@ -1,1 +1,1 @@
- go to [this link](https://www.tumblr.com/starpluckgame) until we get starpluck.net
+ go to [this link](https://www.tumblr.com/mortisgame) until we get our own website lol
