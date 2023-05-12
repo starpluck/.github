@@ -1,4 +1,4 @@
-#Hey! We're STUDIO IRRElEVANT!
+# Hey! We're STUDIO IRRElEVANT!
 
 We're a group of friends that makes stuff !!!
 
